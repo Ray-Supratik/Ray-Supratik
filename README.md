@@ -1,3 +1,3 @@
- 👋 Hi, I’m Supratik Ray
+ 👋 Hi, I’m Supratik
 
 
